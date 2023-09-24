@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Silviacc4268
 - 👀 I’m interested in sex hot
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 🌱 I’m currently learning a masturbarme
+- 💞️ I’m looking to collaborate on lesbian 
+- 📫 How to reach me 960613512
 
 <!---
 Silviacc4268/Silviacc4268 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
